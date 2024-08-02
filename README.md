@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **pv275@scarletmail.rutgers.edu**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me:https://www.linkedin.com/in/pujita-vijayakumar-776270277/</h3>
 <p align="left">
 </p>
 
